@@ -1,4 +1,4 @@
-
+Get the ultimate Strava for macOS automation with vip Strava for macOS Automation | water-intake-tracking + GPS-tracking. Featuring water-intake-tracking and GPS-tracking, it's
 
 
 
